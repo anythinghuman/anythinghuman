@@ -13,6 +13,7 @@
 <h5 align="left" /> 2. I can be awkward when first getting to know me.
 <h5 align="left" /> 3. I'm usually around my trusted circle of friends, or a designated person. <b> </b>You're still welcome to INT! </h5> </h5> </h5> </h5> </h3> </b>
 <h5 align="left" /> 4. I can be quite anxious, leading me to get quickly/easily hurt.
+<h5 align="left" /> 5. I'm taken, so please don't flirt with me!!
 <img width="1000" height="80" alt="image" src="https://github.com/user-attachments/assets/f84d0b3f-d432-4b8f-b16b-895e870ec78c" />
 <img width="300" height="300" alt="image" align="left" src="https://github.com/user-attachments/assets/015179fa-73ea-48ae-9ddc-83d528c0948c" />
 <h3 align="center"> <img width="50" height="50"src="https://64.media.tumblr.com/30036a0c4adc7c54c4d9272b2bf05e7f/86f0c5b7edbcb628-85/s100x200/88b14a8d4d185f65c2a442536b9bc19222065e23.gifv"/> DNI
